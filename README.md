@@ -1,1 +1,0 @@
-# White-Tiger-Research.github.io
